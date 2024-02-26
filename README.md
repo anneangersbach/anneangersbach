@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @anneangersbach
 - 👀 I’m interested in nerdy stuff
-- 🌱 I’m currently learning Spanish
+- 🌱 I’m currently building a diorama and a guitar is next
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: don't right now.
 
